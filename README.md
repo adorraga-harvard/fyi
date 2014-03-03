@@ -1,4 +1,4 @@
 fyi
 ===
 
-Hi Namrata, it is Winter2014
+This board is where I put info for my friends.
